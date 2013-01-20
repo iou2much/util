@@ -1,1 +1,1 @@
-fuck you ,man!
+bless you ,man!
